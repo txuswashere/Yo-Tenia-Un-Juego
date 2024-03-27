@@ -1,2 +1,2 @@
-# Yo-Ten-a-Un-Juego
+# Yo-Tenia-Un-Juego
 https://www.yoteniaunjuego.com/
